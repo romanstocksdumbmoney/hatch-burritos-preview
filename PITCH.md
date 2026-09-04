@@ -1,24 +1,21 @@
-# Hatch Burritos — cold pitch (Roman Sites)
+# Hatch Burritos (Durham) — BUILD ONLY (Gmail limit)
+
+**STATUS: .roman-ready — DO NOT SEND until Gmail limit clears**
 
 **From:** romansites365@gmail.com  
-**To:** hatchbreakfastnc@gmail.com  
-**Sign-off:** Roman / Roman Sites / Raleigh  
-
+**To (when send resumes):** hatchbreakfastnc@gmail.com  
 **Preview:** https://romanstocksdumbmoney.github.io/hatch-burritos-preview/  
-**Live site:** https://hatchburritosnc.com/ (Toast template)  
-**Fee:** $550 flat handoff (vs ~$2,000–$3,500 local)
-
----
+**Live:** https://hatchburritosnc.com/ (Toast)  
+**Fee:** $575
 
 ## Send status
-**NOT SENT** — build only. Do not cold-email while Gmail is limited.
-
----
+**NOT SENT** — Gmail send limit active on romansites365@gmail.com; build+publish only. Do not send until cleared.
 
 ## Cold email notes
-- Mailto from live Toast contact: hatchbreakfastnc@gmail.com
-- Phone (919) 797-0108 · 721 N Mangum St, Durham, NC 27701
+- Mailto: hatchbreakfastnc@gmail.com
+- Phone (919) 797-0108 · 723 North Mangum Street, Durham, NC 27701
+- Order: https://hatchburritosnc.com/order
+- Catering: https://hatchburritosnc.com/catering-menu-placeholder
 - IG @hatchburritosnc
-- Order: https://hatchburritosnc.com/menu
 - Hours: Mon–Fri 7–3 · Sat–Sun 9–3
-- Angle: Toast template undersells New Mexican brunch plates; photo-rich multi-page sample
+- Angle: Toast template undersells New Mexican plates; photo-rich multi-page sample
